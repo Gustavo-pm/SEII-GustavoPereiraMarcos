@@ -1,2 +1,1 @@
-#Vídeo 12
-
+#Vídeo 12 Vídeos não realizado. Explicação de outro conteúdo
